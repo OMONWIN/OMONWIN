@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OMONWIN
-- 👀 I’m interested in CRYTOCURRENCY
+- 👀 I’m interested in PROGRAMMING
 - 🌱 I’m currently learning BLOCKCHAIN
 - 💞️ I’m looking to collaborate on ANYONE
 - 📫 How to reach me +2347089154292
